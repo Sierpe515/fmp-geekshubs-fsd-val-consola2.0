@@ -1,0 +1,1 @@
+# fmp-geekshubs-fsd-val-consola2.0
